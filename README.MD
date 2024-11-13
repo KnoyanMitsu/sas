@@ -1,0 +1,1 @@
+Just view pages
